@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jheckster  
-- 👀 I’m interested in reading, pressing and preserving dried flowers, I love going to college and paiting.   
+- 👀 I’m interested in reading, pressing and preserving dried flowers, I love going to college and painting.   
 - 🌱 I’m currently learning statistics, business law, and philosophy.   
 - 💞️ I’m looking to collaborate on just exploring simple swirl coding for my class.  
 - 📫 How to reach me: through this site, I am on "away" consistently.  
